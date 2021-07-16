@@ -5,6 +5,6 @@
 - 👯 I’m looking to collaborate on ... Software Projects
 - 🤔 I’m looking for help with ... AWS
 - 💬 Ask me about ...Anything
-- 📫 How to reach me: ...ashwinwaikar@gmail.com
+- 📫 How to reach me: ... ashwinwaikar@gmail.com
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... Well...
